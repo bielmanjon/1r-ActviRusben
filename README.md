@@ -29,8 +29,11 @@ Si, Business Insider informó que donó 2 millones de dólares a bancos de alime
 
 ![imatge](https://github.com/user-attachments/assets/bc404d1e-1913-4c8b-a9ce-0edf8ba2d086)
 
-Aqui Jordan hizo historia saltando desde tiro libre en un concurso de mates sorpendiendo a medio mundo.ñ
+Aqui Jordan hizo historia saltando desde tiro libre en un concurso de mates sorpendiendo a medio mundo.
 
+# Espero que haya sido util mi informacion
+
+![imatge](https://github.com/user-attachments/assets/540ae7ce-2b33-41f8-aab2-f38227ec58fb)
 
 
 ## Mi informacion se ha sacado de la [Gran Wiki Jordan](https://ca.wikipedia.org/wiki/Michael_Jordan)
